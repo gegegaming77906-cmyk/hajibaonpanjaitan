@@ -1,2 +1,0 @@
-# hajibaonpanjaitan
-undangan pernikahan
